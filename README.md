@@ -11,5 +11,5 @@ https://www.youtube.com/watch?v=YlA67ppLPic
 
 ### 05-05-2025
 
-Indra Nooyi On Being One Of The Longest-Serving Female CEOs
+Indra Nooyi On Being One Of The Longest-Serving Female CEOs : 25m 
 https://www.youtube.com/watch?v=vRy-_w4cvT8
