@@ -9,4 +9,7 @@ https://www.youtube.com/watch?v=jgOonCipZ2M&t=1812s
 In conversation With Roshni Nadar Malhotra, Chairperson, HCL Technologies             : 15m
 https://www.youtube.com/watch?v=YlA67ppLPic
 
+### 05-05-2025
 
+Indra Nooyi On Being One Of The Longest-Serving Female CEOs
+https://www.youtube.com/watch?v=vRy-_w4cvT8
