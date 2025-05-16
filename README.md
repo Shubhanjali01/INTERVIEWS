@@ -13,3 +13,10 @@ https://www.youtube.com/watch?v=YlA67ppLPic
 
 Indra Nooyi On Being One Of The Longest-Serving Female CEOs : 25m 
 https://www.youtube.com/watch?v=vRy-_w4cvT8
+
+
+### 16-05-2025
+
+Leadership from ‘The Bottom of the Pyramid' | Roshni Nadar Malhotra | TEDxShivNadarUniversity
+https://www.youtube.com/watch?v=_s8IG6DTtks
+
