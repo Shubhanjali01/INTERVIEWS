@@ -24,3 +24,7 @@ https://www.youtube.com/watch?v=_s8IG6DTtks
 
 ET Businesswoman of the Year 2019: Nykaa’s Falguni Nayar’s full speech  : 5m
 https://www.youtube.com/watch?v=J7rDRqNdW3Y
+
+
+Leadership Mantras with Priyanka Chopra Jonas and Falguni Nayar : 27 m
+https://www.youtube.com/watch?v=lUZ9s7CdrPo
