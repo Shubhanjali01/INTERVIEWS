@@ -17,6 +17,10 @@ https://www.youtube.com/watch?v=vRy-_w4cvT8
 
 ### 16-05-2025
 
-Leadership from ‘The Bottom of the Pyramid' | Roshni Nadar Malhotra | TEDxShivNadarUniversity
+Leadership from ‘The Bottom of the Pyramid' | Roshni Nadar Malhotra | TEDxShivNadarUniversity 
 https://www.youtube.com/watch?v=_s8IG6DTtks
 
+### 21-05-2025
+
+ET Businesswoman of the Year 2019: Nykaa’s Falguni Nayar’s full speech  : 5m
+https://www.youtube.com/watch?v=J7rDRqNdW3Y
