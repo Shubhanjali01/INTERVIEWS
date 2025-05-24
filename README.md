@@ -28,3 +28,9 @@ https://www.youtube.com/watch?v=J7rDRqNdW3Y
 
 Leadership Mantras with Priyanka Chopra Jonas and Falguni Nayar : 27 m
 https://www.youtube.com/watch?v=lUZ9s7CdrPo
+
+
+### 24 may 2025 
+
+How to Start From Zero | Elon Musk                : 13m
+https://www.youtube.com/watch?v=tFLArM3A9a0
