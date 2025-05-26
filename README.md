@@ -34,3 +34,10 @@ https://www.youtube.com/watch?v=lUZ9s7CdrPo
 
 How to Start From Zero | Elon Musk                : 13m
 https://www.youtube.com/watch?v=tFLArM3A9a0
+
+### 26 may 2025
+STOP WASTING TIME - Inspired By Jack Ma  :  10m 
+https://www.youtube.com/watch?v=gIi4eXGKZ8o
+
+Leadership from ‘The Bottom of the Pyramid' | Roshni Nadar Malhotra |   : 14 m
+https://www.youtube.com/watch?v=_s8IG6DTtks&t=4s
