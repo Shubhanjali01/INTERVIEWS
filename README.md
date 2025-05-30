@@ -52,3 +52,6 @@ https://www.youtube.com/watch?v=5VCG7DNQdp8https://www.youtube.com/watch?v=5VCG7
 
 DON'T TELL EVERYONE YOUR STORY - Inspired by Jack Ma : 10: 53 m
 https://www.youtube.com/watch?v=ONg0iV4A5Qw
+
+How to Cultivate an Entrepreneurial Mindset | Linda Chiou | TEDxKerrisdaleLive : 18: 03 m
+https://www.youtube.com/watch?v=niOV_jSVCKs
