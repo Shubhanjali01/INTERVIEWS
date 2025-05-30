@@ -41,3 +41,14 @@ https://www.youtube.com/watch?v=gIi4eXGKZ8o
 
 Leadership from ‘The Bottom of the Pyramid' | Roshni Nadar Malhotra |   : 14 m
 https://www.youtube.com/watch?v=_s8IG6DTtks&t=4s
+
+### 30 may 2025
+
+Elon Musk's Work Ethics Will Give You Goosebumps  : 9:00 m
+https://youtu.be/2H4z1g-eHyU?si=tlD-A_nbIqq4ScIr
+
+FOCUS ON YOUR OWN SUCCESS - Inspired By Jack Ma  : 12:05 m
+https://www.youtube.com/watch?v=5VCG7DNQdp8https://www.youtube.com/watch?v=5VCG7DNQdp8
+
+DON'T TELL EVERYONE YOUR STORY - Inspired by Jack Ma : 10: 53 m
+https://www.youtube.com/watch?v=ONg0iV4A5Qw
