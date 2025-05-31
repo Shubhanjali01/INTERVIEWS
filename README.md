@@ -55,3 +55,10 @@ https://www.youtube.com/watch?v=ONg0iV4A5Qw
 
 How to Cultivate an Entrepreneurial Mindset | Linda Chiou | TEDxKerrisdaleLive : 18: 03 m
 https://www.youtube.com/watch?v=niOV_jSVCKs
+
+
+Falguni Nayar | Women at Work   : 8 minutes
+https://www.youtube.com/watch?v=08OGsIq7UAM
+
+Why we have too few women leaders | Sheryl Sandber  : 15:28 m
+https://www.youtube.com/watch?v=18uDutylDa4
