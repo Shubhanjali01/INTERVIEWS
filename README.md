@@ -62,3 +62,8 @@ https://www.youtube.com/watch?v=08OGsIq7UAM
 
 Why we have too few women leaders | Sheryl Sandber  : 15:28 m
 https://www.youtube.com/watch?v=18uDutylDa4
+
+
+### 3 june 2025
+I’m Over 50 — This Surprising Rule Keeps Me Strong Every Day | Elon Musk  : 10 m
+https://www.youtube.com/watch?v=NVQLhqaLq48
