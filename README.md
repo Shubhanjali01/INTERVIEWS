@@ -67,3 +67,8 @@ https://www.youtube.com/watch?v=18uDutylDa4
 ### 3 june 2025
 I’m Over 50 — This Surprising Rule Keeps Me Strong Every Day | Elon Musk  : 10 m
 https://www.youtube.com/watch?v=NVQLhqaLq48
+
+
+### 5 june 2025
+Sundar Pichai's BEST Speeches Of All Time  : 22:19 m
+https://www.youtube.com/watch?v=LK1Hd_zjypc
