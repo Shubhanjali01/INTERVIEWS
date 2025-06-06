@@ -69,6 +69,14 @@ I’m Over 50 — This Surprising Rule Keeps Me Strong Every Day | Elon Musk  : 
 https://www.youtube.com/watch?v=NVQLhqaLq48
 
 
+Aamir Khan On Marriage Failure, Family, Nepotism, Last Film, Bollywood & 3 Idiots |FO362 Raj Shamani     : 1 hours     
+https://www.youtube.com/watch?v=r8pDXO6zRUg&t=4525s
+
 ### 5 june 2025
 Sundar Pichai's BEST Speeches Of All Time  : 22:19 m
 https://www.youtube.com/watch?v=LK1Hd_zjypc
+
+
+### 6 june 2025
+Aamir Khan On Marriage Failure, Family, Nepotism, Last Film, Bollywood & 3 Idiots |FO362 Raj Shamani     : 1h/2h:17m --> 1h + 1h/ 2h:17m   
+https://www.youtube.com/watch?v=r8pDXO6zRUg&t=4525s
