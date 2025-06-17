@@ -80,3 +80,8 @@ https://www.youtube.com/watch?v=LK1Hd_zjypc
 ### 6 june 2025
 Aamir Khan On Marriage Failure, Family, Nepotism, Last Film, Bollywood & 3 Idiots |FO362 Raj Shamani     : 1h/2h:17m --> 1h + 1h/ 2h:17m   
 https://www.youtube.com/watch?v=r8pDXO6zRUg&t=4525s
+
+### 17 june 2025
+
+Vijay Mallya Podcast: Rise & Downfall Of Kingfisher Airlines, Loans & RCB | FO364 Raj Shamani : 10m / 4h:18m
+https://www.youtube.com/watch?v=MdeQMVBuGgY
