@@ -85,3 +85,24 @@ https://www.youtube.com/watch?v=r8pDXO6zRUg&t=4525s
 
 Vijay Mallya Podcast: Rise & Downfall Of Kingfisher Airlines, Loans & RCB | FO364 Raj Shamani : 10m / 4h:18m
 https://www.youtube.com/watch?v=MdeQMVBuGgY
+
+
+
+Mary Kom - EK Champion Ki Kahani | From Breaking Stereotypes To Winning World Championships | TRS          : 29m/ 1h:25m
+https://www.youtube.com/watch?v=XScnCdyVbIU&t=368s
+
+
+
+ENGLISH SPEECH | RASHMIKA MANDANNA: Dream BIG! (English Subtitles) : 10m
+https://www.youtube.com/watch?v=EQYWOQ-12c8
+
+ENGLISH SPEECH | SAMANTHA RUTH PRABHU: You Can Do It (English Subtitles) : 9m
+https://www.youtube.com/watch?v=s5BMcaQsjbM
+
+Social media Timing : 11pm-1am , duration : 2h
+
+Start Earning Money WIth AI - Free Tools & Business Ideas | Vaibhav Sisinty | FO376 Raj Shamani : 15july : 1:22 hrs
+https://youtu.be/0-FUhQKe-eU?si=r2PzDMFUzkhr2cSc
+
+‪@Thesalonikhanna‬ On Reality Of UPSC Coaching, Exam, IAS & Government Job In India |FO214 Raj Shamani : 1hrs
+https://www.youtube.com/watch?v=cvddvAqZLMg&list=PLE0Jo6NF_JYN-I-WHL3wsHavMoodixYdz&index=2
