@@ -106,3 +106,7 @@ https://youtu.be/0-FUhQKe-eU?si=r2PzDMFUzkhr2cSc
 
 ‪@Thesalonikhanna‬ On Reality Of UPSC Coaching, Exam, IAS & Government Job In India |FO214 Raj Shamani : 1hrs
 https://www.youtube.com/watch?v=cvddvAqZLMg&list=PLE0Jo6NF_JYN-I-WHL3wsHavMoodixYdz&index=2
+
+
+‪@shradhaKD‬ On Indian Education System, Engineering Colleges & Future Of India | FO 129 Raj Shamani  : 45 m
+https://www.youtube.com/watch?v=xPftLsZeKSg&list=PLE0Jo6NF_JYN-I-WHL3wsHavMoodixYdz&index=7
