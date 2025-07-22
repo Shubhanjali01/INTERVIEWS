@@ -110,3 +110,8 @@ https://www.youtube.com/watch?v=cvddvAqZLMg&list=PLE0Jo6NF_JYN-I-WHL3wsHavMoodix
 
 ‪@shradhaKD‬ On Indian Education System, Engineering Colleges & Future Of India | FO 129 Raj Shamani  : 45 m
 https://www.youtube.com/watch?v=xPftLsZeKSg&list=PLE0Jo6NF_JYN-I-WHL3wsHavMoodixYdz&index=7
+
+
+### 22 july 2025
+https://www.youtube.com/watch?v=QRehJ3IGmAg&t=321s  : 32 m
+Forum on Leadership 2024: Indra Nooyi, in conversation with Ken Hersh
