@@ -72,3 +72,51 @@ Please make sure you have the correct access rights
 and the repository exists.
 
 ## Option 2: Configure Git to use correct GitHub user
+✅ Clear saved credentials:
+
+Open Credential Manager (Windows):
+
+Control Panel → User Accounts → Credential Manager → Windows Credentials
+
+Look for any GitHub entries (like git:https://github.com) and remove them.
+
+✅ Re-enter the correct account:
+
+Now try:
+git push -u origin main
+**Error**
+ERROR: Permission to Shubhanjali01/INTERVIEWS.git denied to Reah99.
+fatal: Could not read from remote repository.
+
+Please make sure you have the correct access rights
+and the repository exists.
+
+
+.
+
+##  Option 3: Set Git globally or locally to correct user
+
+🔄 Global config (for all repos):
+
+git config --global user.name "Shubhanjali01"
+git config --global user.email "your_email@example.com"
+
+🔄 Local config (only for this repo):
+
+git config user.name "Shubhanjali01"
+git config user.email "your_email@example.com"
+
+- Check your corrent remote 
+
+git remote -v
+git config user.name
+git config user.email
+
+
+C:\Users\shubhi\Desktop\INTERVIEW>git push -u origin main
+
+## ERROR: Permission to Shubhanjali01/INTERVIEWS.git denied to Reah99.
+fatal: Could not read from remote repository.
+
+Please make sure you have the correct access rights
+and the repository exists.
